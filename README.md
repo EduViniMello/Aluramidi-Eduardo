@@ -1,1 +1,0 @@
-# Aluramidi-Eduardo
